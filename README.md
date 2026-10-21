@@ -58,5 +58,3 @@ I am passionate about building high-quality software that makes a difference in 
 ▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂▂
 
 I am confident that I have the skills and experience to be a valuable asset to your team. I am a hard worker and I am always willing to learn new things. I am also a team player and I am always willing to help others. I am confident that I can make a significant contribution to your team and help you achieve your goals.
-
-If you are interested in learning more about me, please feel free to contact me at [ gazimdrifatofficial@gmail.com ]
